@@ -1,4 +1,4 @@
-
+Get the ultimate Fantastical for macOS automation with instant Automation for Fantastical for macOS - auto-sync and AI assistant. Featuring auto-sync and AI assistant, it's the
 
 
 
